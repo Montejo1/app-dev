@@ -3,7 +3,7 @@
 > "Remember. Survive. Run."
  
 ## Why I Love This Movie
-- **Atmosphere and Tension:** • Instead of relying only on the metal elevator forever, the movie quickly throws you into the claustrophobic Glade and the terrifying, shifting walls of the Maze. 
+- **Atmosphere and Tension:** Instead of relying only on the metal elevator forever, the movie quickly throws you into the claustrophobic Glade and the terrifying, shifting walls of the Maze. 
 - **Compelling Characters:** Thomas, Newt, and Minho bring real camaraderie and urgency to a group of teens fighting to survive
 - **Mystery and Pacing:** The constant questions about who built the Maze and why they are there keep the story moving at a fast pace.
   
